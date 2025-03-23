@@ -1,5 +1,6 @@
 # Anh Côn hub
 # Discord: https://discord.gg/s7Ba2D8Xnh
+# discord Cat hub: https://discord.gg/By6YH72DXf
 # Bug-report Discord: Catdzs1vn
 # Việt Nam
 # Nên nhớ Hoàng Xa trường Xa là Của Việt Nam
